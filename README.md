@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dsyyke
+- 👋 Hi, I’m Devika
 - 👀 I’m interested in exploring and learning new languages.
 - 🌱 I’m currently an aspiring engineering student.
 - 📫 Reach me through devikadinesh03@gmail.com
